@@ -27,6 +27,7 @@ Dinah Handel<br>
 Heidi Dowding Kelly<br>
 Mary Kidd<br>
 Marissa Kings<br>
+Jen LaBarbera<br>
 Adam Lott<br>
 Morgan McKeehan<br>
 Kate McManus<br>
