@@ -31,6 +31,7 @@ Adam Lott<br>
 Morgan McKeehan<br>
 Kate McManus<br>
 Katie Mika<br>
+Lee Nilsson<br>
 Margo Padilla<br>
 Tricia Patterson<br>
 Shira Peltzman<br> 
