@@ -13,6 +13,7 @@ Meredith Broadway<br>
 John Caldwell<br>
 Joe Carrano<br>
 Selena Chau<br>
+Valerie Collins<br>
 Eddy Colloton<br>
 Nicole Contaxis<br>
 Alexandra Curran<br>
