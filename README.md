@@ -42,4 +42,6 @@ Alice Prael<br>
 Lorena Ramírez-López<br>
 Stefanie Ramsay<br>
 Ariadne Rehbein<br>
+Molly Schwartz<br>
 Vicky Steeves<br>
+Erica Titkemeyer<br>
