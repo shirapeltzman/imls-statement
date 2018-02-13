@@ -36,10 +36,13 @@ Katie Mika<br>
 Lee Nilsson<br>
 Margo Padilla<br>
 Tricia Patterson<br>
+Cate Peebles<br>
 Shira Peltzman<br> 
 Megan Potterbusch<br>
 Alice Prael<br>
 Lorena Ramírez-López<br>
 Stefanie Ramsay<br>
 Ariadne Rehbein<br>
+Molly Schwartz<br>
 Vicky Steeves<br>
+Erica Titkemeyer<br>
